@@ -1,0 +1,1 @@
+# Lastrik.github.io
